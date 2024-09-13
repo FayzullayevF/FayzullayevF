@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Fatxullo (@FayzullayevF)
 - 👀 I’m interested in Football
 - 🌱 I’m currently learning Computer Technology 
-- 💞️ I’m looking to collaborate on my Mom's birthday
+- 💞️ I’m looking to collaborate on our new project 
 - 📫 How to reach me my instagram _fat_uz
 - 😄 Pronouns: nothing
 - ⚡ Fun fact: I'm 19 😂
